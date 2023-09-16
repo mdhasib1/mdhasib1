@@ -1,6 +1,9 @@
 
 ![Business-Facebook-Cover-08-Recovered psd new](https://github.com/mdhasib1/mdhasib1/assets/77572942/537a8cef-61a8-4260-8b6d-295a782c4635)
 
+![Business-Facebook-Cover-08-Recovered](https://github.com/mdhasib1/mdhasib1/assets/77572942/e7ec6953-9158-400e-bd36-6803a0981c9a)
+
+
 # 💫 About Me:
 I'm MD HASIB, a passionate web developer with expertise in building robust and user-friendly web applications. I enjoy solving complex problems and creating seamless user experiences.<br><br>- 💼 Currently working as a full-stack web developer<br>- 🌱 Continuously learning and exploring new technologies and frameworks<br>- 👯 Looking to collaborate on exciting web development projects<br>- 💡 Passionate about creating clean, efficient, and scalable code<br>- 🎓 Graduated with a degree in Computer Science<br>- ⚡ Fun fact: I love playing guitar in my free time<br><br>I'm always seeking opportunities to grow and expand my skill set. Feel free to connect with me and explore potential collaborations!<br><br>
 
